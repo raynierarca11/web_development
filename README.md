@@ -4,7 +4,7 @@ html and css
 So today, i'm going to create a website that showcases html and css
 
 and javascript.
-and flutter
+and flutter.
 
 
 
