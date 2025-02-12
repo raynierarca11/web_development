@@ -22,6 +22,7 @@ keep moving forward
 
 Overwhelming.
 
+thats life
 
 
 
