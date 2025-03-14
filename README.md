@@ -3,7 +3,7 @@ html and css
 
 So today, i'm going to create a website that showcases html and css
 
-
+geez networking is overwhelming
 yea
 and javascript.
 and flutter.
