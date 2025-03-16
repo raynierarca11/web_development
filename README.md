@@ -18,7 +18,7 @@ go
 
 and be confident.
 Show your confidence.
-and eagerness
+and eagernessnsn
 
 keep moving forward
 
