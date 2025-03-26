@@ -12,7 +12,7 @@ Go to Udemy and enroll courses.
 
 Finish the courses you enroll in udemy.
 dsdsasdd
-Not yet done. .d
+Not yet done. .dvv
 
 go
 
