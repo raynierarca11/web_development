@@ -3,7 +3,7 @@ html and css
 
 So today, i'm going to create a website that showcases html and css
 
-STUDY NETWORKINGGGG!, OUTLOOK TUTORIAL AND GMAIL BASICS.
+STUDY NETWORKINGGGG!, OUTLOOK TUTORIAL AND GMAIL BASICS.d
 
 
 geez networking is overwhelming
