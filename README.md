@@ -9,7 +9,7 @@ STUDY NETWORKINGGGG!, OUTLOOK TUTORIAL AND GMAIL BASICS.eddse
 geez networking is overwhelming
 yea
 and javascript.
-and flutter.eedsd
+and flutter.eedsd.
 qqs
 Go to Udemy and enroll courses.
 
