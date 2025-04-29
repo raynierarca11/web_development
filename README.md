@@ -7,7 +7,7 @@ STUDY NETWORKINGGGG!, OUTLOOK TUTORIAL AND GMAIL BASICS.eddses.
 .
 
 geez networking is overwhelmings.
-yea
+yea.
 and javascript.
 and flutter.eedsd.
 qqs
