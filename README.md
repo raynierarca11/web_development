@@ -10,7 +10,7 @@ geez networking is overwhelmings.
 yea.
 and javascript..
 and flutter.eedsd.
-qqs
+qqs.
 Go to Udemy and enroll courses.
 
 Finish the courses you enroll in udemy.
