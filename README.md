@@ -2,7 +2,7 @@ gh# web_development
 html and css
 
 So today, i'm going to create a websi..te that showcases html and css.,.
-yeahyeah.,.,
+yeahyeah.,.,..
 STUDY NETWORKINGGGG!, OUTLOOK TUTORIAL AND GMAIL BASICS.e.dd,.,.ses......,..,.........web
 ......yeah.,.,..
 
